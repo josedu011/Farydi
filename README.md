@@ -1,1 +1,1 @@
- https://josedu011.github.io/Farydi/
+https://josedu011.github.io/Farydi/
